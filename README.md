@@ -8,4 +8,4 @@ Families engage in **egg decorating, Easter parades, and sunrise services**, mak
 
 As Easter 2025 approaches, it remains a time of **faith, joy, and togetherness**.  
 
-[Click Here For more Info]( ) 
+[Click Here For more Info](https://vocal.media/humans/easter-2025-traditions-celebrations-and-meaning) 
